@@ -1,0 +1,8 @@
+### Vishnu Asutosh Dasu
+# Swachh Bharat Abhiyan
+
+The Swachh Bharat Abhiyan campaign has proven to be one of the most significant and effective cleanliness campaigns undertaken by the Indian Government. The campaign was launched on **2 October, 2014** with the primary aim of making India clean. By **2 October, 2019**, which is **Mahatma Ganhi's 150th birth anniversary**, the Government hopes to provide sanitation facilities to every household, safe and adequate drinking water, maintain a healthy environment and spread awareness about cleanliness.
+
+The fact that the Prime Minister had to make a statement regarding this issue highlights the sorry state of awareness regarding cleanliness in our country. However, hope is not lost as the Swachh Bharat moving has been gaining a lot of traction with active involement from the student community. The Prime Minister has motivated the whole country to join the cause through his efforts in helping in cleaning the **Ganges** in Varanasi. Since the genesis of the campaign, we've have definitely come a long way. Upto **4 lakh** villages, **423** districts and **19** states have been declared Open Defecation Free. Door to door waste collection has been implemented in most cities to motivate residents to not dispose garbage in unauthorized places. The Indian  Railways has install **1,25,000** bio-toilets in train coaches. In conclusion, the future of cleanliness in India doesn't seem so bleak after all. There is still hope.
+
+> We can no more gain God’s blessing with an unclean body than with an unclean mind. A clean body cannot reside in an unclean city. – Mahatma Gandhi 
